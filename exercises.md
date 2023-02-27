@@ -25,3 +25,8 @@
 ### Why do you use these tools or techniques?
 
 - i think it most stimulates my creativity. i like the motion of writing when i am first constructing an idea, i like to feel that i am physically manifesting the thought or idea from my head onto paper. I then find it easier to revise and reform the poem digitally for ease and also for better accuracy. I like that i can easily search whilst writing, allowing the poem to become deeper and more evolved. 
+
+
+### How do these tools shape the way you write?
+
+- Follows a similiar pattern, becomes habitual // less innovative. Keeps quite traditional & within my comfort zone. Percieved one way by the reader, less imput from the reader. Exists in one way only. 
