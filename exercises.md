@@ -29,4 +29,5 @@
 
 ### How do these tools shape the way you write?
 
+- Allows it to be grounded, intentional and intuitive. Also quite habitual.
 - Follows a similiar pattern, becomes habitual // less innovative. Keeps quite traditional & within my comfort zone. Percieved one way by the reader, less imput from the reader. Exists in one way only. 
