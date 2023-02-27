@@ -20,3 +20,8 @@
 - i like to write whilst i'm outside, typing into my notes app or writing into my journal
 - i like to transfer poems from the written page, revising them on a document, sometimes transfering the final poem back onto paper
 - i like to go through my journal/photos, taking inspiration from moments i have already attempted to capture
+
+
+### Why do you use these tools or techniques?
+
+- i think it most stimulates my creativity. i like the motion of writing when i am first constructing an idea, i like to feel that i am physically manifesting the thought or idea from my head onto paper. I then find it easier to revise and reform the poem digitally for ease and also for better accuracy. I like that i can easily search whilst writing, allowing the poem to become deeper and more evolved. 
