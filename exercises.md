@@ -31,3 +31,13 @@
 
 - Allows it to be grounded, intentional and intuitive. Also quite habitual.
 - Follows a similiar pattern, becomes habitual // less innovative. Keeps quite traditional & within my comfort zone. Percieved one way by the reader, less imput from the reader. Exists in one way only. 
+ure
+## Week 2
+
+We explored different types of electronic literature. I chose the Black Out poetry tool for my investigation. 
+Thoughts on shade: 
+
+## Week 3
+
+
+
