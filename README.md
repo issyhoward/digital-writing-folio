@@ -2,4 +2,4 @@
 
 - [Readings](readings.md) 
 - [Exercises](exercises.md)
-- [Project](project.md)
+- [Project](Project.md)
